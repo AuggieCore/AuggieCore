@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1258273202262638594/1318410326969946173/STL176711-removebg-preview_1.png?ex=676238cc&is=6760e74c&hm=2642f67be11696bbbd1123b14cf8eed9b5b1b60cf3e079aa23f187bdaa239180&
+https://i.pinimg.com/736x/75/88/28/75882851daba42b6fad983959852df35.jpg
