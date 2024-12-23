@@ -6,7 +6,7 @@
 
 
 
- ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc) ![f350952d](https://github.com/user-attachments/assets/4303cb70-ee68-4643-b926-81d26a363714) ![ca5a5dc0](https://github.com/user-attachments/assets/1ae723e8-ef11-4211-9545-e727b05c1558) ( They / them )
+ ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc) ![f350952d](https://github.com/user-attachments/assets/4303cb70-ee68-4643-b926-81d26a363714) ![ca5a5dc0](https://github.com/user-attachments/assets/1ae723e8-ef11-4211-9545-e727b05c1558) KITTY ♡︎
 
 ![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/6a9978eb-b99e-4fa5-9bf4-edeac8a2e7fe)![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/78ee7d0d-2117-4263-8278-e873bbdc8c2c)![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/d5ead628-c653-40e3-97fd-07457e5d5d9d)
 
