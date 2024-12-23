@@ -11,7 +11,7 @@
 ![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/6a9978eb-b99e-4fa5-9bf4-edeac8a2e7fe)![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/78ee7d0d-2117-4263-8278-e873bbdc8c2c)![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/d5ead628-c653-40e3-97fd-07457e5d5d9d)
 
 
-No me mires con esos ojos !! ⋆·˚ ༘ *
+No me mires con esos ojos !! ⋆·˚ ༘ * - lyrics
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
