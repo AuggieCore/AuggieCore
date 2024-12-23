@@ -6,7 +6,8 @@
 
 
 
- ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc)
+ ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc) ![2c555316](https://github.com/user-attachments/assets/6abda123-fb47-4523-9a4f-8527d0a06bd8)
+
 
 
 
