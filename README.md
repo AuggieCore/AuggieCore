@@ -6,7 +6,8 @@
 
 
 
- ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc) ![f350952d](https://github.com/user-attachments/assets/4303cb70-ee68-4643-b926-81d26a363714)
+ ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc) ![f350952d](https://github.com/user-attachments/assets/4303cb70-ee68-4643-b926-81d26a363714) ![ca5a5dc0](https://github.com/user-attachments/assets/1ae723e8-ef11-4211-9545-e727b05c1558)
+
 
 
 
