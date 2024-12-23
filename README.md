@@ -6,11 +6,12 @@
 
 
 
- ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc)
+ ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc) ![f350952d](https://github.com/user-attachments/assets/4303cb70-ee68-4643-b926-81d26a363714)
 
 
 
 
 
 
-![tumblr_ngkvlqOD6M1rhyc2ao1_r1_1280-removebg-preview](https://github.com/user-attachments/assets/3120777f-2147-40f3-b50d-4952f7702036)
+
+
