@@ -48,7 +48,8 @@ Im making a doc rn so have fun waiting for years /j..
 
 ![baeaafd1](https://github.com/user-attachments/assets/795b3693-533d-4c6e-9184-9541de256cf2)![baeaafd1](https://github.com/user-attachments/assets/795b3693-533d-4c6e-9184-9541de256cf2)
 
-I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! 
+I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !!
+
 ![cff107dffaad734055e2b8a1573714f5-removebg-preview](https://github.com/user-attachments/assets/ff3a5f03-4730-4760-939c-d082f4c5ec6f) ![47457d907afdd38c66adc5552836f1b9-removebg-preview](https://github.com/user-attachments/assets/4ad6a844-12ad-4612-93e9-063125b1d261)
 
 
