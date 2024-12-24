@@ -30,8 +30,12 @@ Hetalia, Sig games, Anime, Genshin, Hellpark, Fnaf, Maze runner, Homestuck, Coun
 hello, I do have quite a lot of nitpicks about stuff so I would like to bring it up so you can understand my boundaries more if you're actually gonna read this.!!![be4dbb2c](https://github.com/user-attachments/assets/c2f0bd5e-c126-4aae-9db9-ddb588886497)
 
 
+I really do hate people that think I follow the Canada / UK stereotypes because it's really not funny. I get it's a stereotype and all but after a while it starts getting repetitive and annoying. So I suggest just stopping before I block you.
 
+Four chan fans.. Every single one of these people I've met a p@doph!1es and have ruined my life so yeah.
 
+The grammar police. GET OFF MY ASS !!!!!!!
 
+Basic DNIS like homophobic, racist, transthobic. stuff like that
 
-
+Im making a doc rn so have fun waiting for years /j..
