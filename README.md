@@ -41,3 +41,5 @@ The grammar police. GET OFF MY ASS !!!!!!!
 Basic DNIS like homophobic, racist, transthobic. stuff like that
 
 Im making a doc rn so have fun waiting for years /j..
+
+ ![Screenshot 2024-12-23 230429](https://github.com/user-attachments/assets/609edd5d-d065-4476-9c1c-a1f26836ba14)
