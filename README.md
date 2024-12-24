@@ -27,7 +27,8 @@ Hetalia, Sig games, Anime, Genshin, Hellpark, Fnaf, Maze runner, Homestuck, Coun
 
 ![Katze_91](https://github.com/user-attachments/assets/cc42cb6a-c1c4-4e54-8ff5-73b022c9e030)  DNI LIST !!
 
-hello, I do have quite a lot of nitpicks about stuff so I would like to bring it up so you can understand my boundaries more if you're actually gonna read this.!!
+hello, I do have quite a lot of nitpicks about stuff so I would like to bring it up so you can understand my boundaries more if you're actually gonna read this.!!![be4dbb2c](https://github.com/user-attachments/assets/c2f0bd5e-c126-4aae-9db9-ddb588886497)
+
 
 
 
