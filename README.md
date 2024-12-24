@@ -46,6 +46,7 @@ Im making a doc rn so have fun waiting for years /j..
 ![d56b6f56](https://github.com/user-attachments/assets/9fa8ad77-6d18-4e55-bd03-69a2b3ca6ced)
  ![Screenshot 2024-12-23 230429](https://github.com/user-attachments/assets/609edd5d-d065-4476-9c1c-a1f26836ba14)
 
-![57ca5e62](https://github.com/user-attachments/assets/14d37fba-17db-4f0e-9386-918312bcb077)![57ca5e62](https://github.com/user-attachments/assets/14d37fba-17db-4f0e-9386-918312bcb077)
+![baeaafd1](https://github.com/user-attachments/assets/795b3693-533d-4c6e-9184-9541de256cf2)![baeaafd1](https://github.com/user-attachments/assets/795b3693-533d-4c6e-9184-9541de256cf2)
+
 
 
