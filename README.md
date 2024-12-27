@@ -50,7 +50,12 @@ Im making a doc rn so have fun waiting for years /j..
 
 I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !! I LOVE DREAMTALIA !!
 
-![398316402-ff3a5f03-4730-4760-939c-d082f4c5ec6f (1)](https://github.com/user-attachments/assets/f23269db-622f-4ec6-96e6-e4e9fc1a67a7) ![9dffa1ed53622f2a3045173eee2c44db-removebg-preview (1)](https://github.com/user-attachments/assets/1864c285-6b8d-474e-aab9-2eaa759723e0) ![7f86273cf356aba7f58f380fbc0d0ce4-removebg-preview (1) (1)](https://github.com/user-attachments/assets/014bdea3-03ea-4e5d-9f7a-c895bbaa5626) ![c2e5c39457d160fa74b64ca143b774c3-removebg-preview (1)](https://github.com/user-attachments/assets/ddef94ff-3263-4b3e-8850-a778790a140b) ![47457d907afdd38c66adc5552836f1b9-removebg-preview (1)](https://github.com/user-attachments/assets/210cb9c9-d878-408f-957a-e7d9cb71fd23) 
+![398316402-ff3a5f03-4730-4760-939c-d082f4c5ec6f (2) (1)](https://github.com/user-attachments/assets/47a75380-9091-4fcf-b295-d884a465d017) ![9dffa1ed53622f2a3045173eee2c44db-removebg-preview (1) (1)](https://github.com/user-attachments/assets/3a42d03d-5af6-4bd7-b9a7-843777623538) ![c2e5c39457d160fa74b64ca143b774c3-removebg-preview (1) (1)](https://github.com/user-attachments/assets/24237187-6bdd-45ce-8854-40738b159b79) ![7f86273cf356aba7f58f380fbc0d0ce4-removebg-preview (1) (1) (1)](https://github.com/user-attachments/assets/9ed2a304-f545-4869-a4a7-04b9ce396f50)  ![47457d907afdd38c66adc5552836f1b9-removebg-preview (1) (1)](https://github.com/user-attachments/assets/cc5a1ec4-dd2d-4358-8001-32da2134b158) ![e7646b6b701b091d88c87cb69f31c3e4-removebg-preview (1) (3)](https://github.com/user-attachments/assets/6cccfa3e-6a77-4bd8-8e24-73e501ff9456)
+
+
+
+
+
 
 
 
