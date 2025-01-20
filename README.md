@@ -7,9 +7,9 @@
 
 
 
- dni list
+ black list
 
- peepaw
+ peepaw and poland simp
 
 
 
