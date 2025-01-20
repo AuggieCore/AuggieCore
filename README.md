@@ -31,24 +31,10 @@ Hetalia, Sig games, Anime, Genshin, Hellpark, Fnaf, Maze runner, Homestuck, Coun
 ![4a9775e2](https://github.com/user-attachments/assets/0778def4-b5eb-49f9-ad86-5901fee364ba) ![eacd9413](https://github.com/user-attachments/assets/75516588-b13d-4195-bb43-02203b4cc6db) ![5ae589b1](https://github.com/user-attachments/assets/19aef30a-dad0-42c8-80e9-0c642b7cec87) ![e637bbec](https://github.com/user-attachments/assets/78c4bc80-38c5-4e7d-9303-8f0839ccac1b) ![6a4d2428](https://github.com/user-attachments/assets/8984af22-ec5f-47e3-8464-3efb2d48745b) ![dfc04105](https://github.com/user-attachments/assets/4a3c04f3-87af-40cd-80ac-6ec551ec6f89) ![76b7e047](https://github.com/user-attachments/assets/d3eec184-d2a8-4bad-8d40-677593a707fb) ![69c38c38](https://github.com/user-attachments/assets/7702411f-5d24-4941-87c7-13978ea2275b) ![60d43ffc](https://github.com/user-attachments/assets/8346f4a5-5be2-4250-be52-db4db6f33c8b) ![84e1eb25](https://github.com/user-attachments/assets/0082a7de-f8f4-4615-ad71-5ab3e2a35e22)
 
 
-![Katze_91](https://github.com/user-attachments/assets/cc42cb6a-c1c4-4e54-8ff5-73b022c9e030)  DNI LIST !!
-
-hello, I do have quite a lot of nitpicks about stuff so I would like to bring it up so you can understand my boundaries more if you're actually gonna read this.!!![be4dbb2c](https://github.com/user-attachments/assets/c2f0bd5e-c126-4aae-9db9-ddb588886497)
+![Katze_91](https://github.com/user-attachments/assets/cc42cb6a-c1c4-4e54-8ff5-73b022c9e030) ![be4dbb2c](https://github.com/user-attachments/assets/c2f0bd5e-c126-4aae-9db9-ddb588886497)
 
 
-I really do hate people that think I follow the Canada / UK stereotypes because it's really not funny. I get it's a stereotype and all but after a while it starts getting repetitive and annoying. So I suggest just stopping before I block you.
 
-Four chan fans.. Every single one of these people I've met a p@doph!1es and have ruined my life so yeah.
-
-The grammar police. GET OFF MY ASS !!!!!!!
-
-Basic DNIS like homophobic, racist, transthobic. stuff like that
-
-Im making a doc rn so have fun waiting for years /j..
-
-
-![d56b6f56](https://github.com/user-attachments/assets/9fa8ad77-6d18-4e55-bd03-69a2b3ca6ced)
- ![Screenshot 2024-12-23 230429](https://github.com/user-attachments/assets/609edd5d-d065-4476-9c1c-a1f26836ba14)
 
 ![baeaafd1](https://github.com/user-attachments/assets/795b3693-533d-4c6e-9184-9541de256cf2)![baeaafd1](https://github.com/user-attachments/assets/795b3693-533d-4c6e-9184-9541de256cf2)
 
