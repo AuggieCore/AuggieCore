@@ -14,15 +14,7 @@
  ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![Screenshot_2025-01-08_175012-removebg-preview (1)](https://github.com/user-attachments/assets/205329ae-23dd-4284-b713-af8bac1f3e68)  ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96)   ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96) ![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/7f59c810-7298-4dd5-a2fe-eeb558687c96)![e1f90f70](https://github.com/user-attachments/assets/81c93a48-849a-4c2f-a753-4f0def3fb3d7)
 
 
-![5c60c07e](https://github.com/user-attachments/assets/f2326207-cd38-4c55-813a-e92c7872e5db) HELLO PEOPLE !! My name is Auggie so yeah call me that !! ![44ac4435f5e1357df22ac2b9b8e9f533](https://github.com/user-attachments/assets/eda40eaa-6263-4b1e-8a04-2f68100924be)  ![021e2540241fcbeb6fb154d756d071cb](https://github.com/user-attachments/assets/2e464145-5abe-4b20-991d-09a7485e42c7) 
 
- ![STL176711-removebg-preview (3)](https://github.com/user-attachments/assets/0516d5f9-513e-4585-b6c2-d53a277b3b17)     ![2aa62531bcf5447aa2b277e5d240c106-removebg-preview (1)](https://github.com/user-attachments/assets/b02dc1e2-1da4-4686-8ba1-f260b1a18e3a)
-
-
-
- ME CORE !!!!!!!!!!!!![7fc6f56f](https://github.com/user-attachments/assets/cd66f2e8-6ef5-4bd3-981b-fba84b702dfc) ![f350952d](https://github.com/user-attachments/assets/4303cb70-ee68-4643-b926-81d26a363714) ![ca5a5dc0](https://github.com/user-attachments/assets/1ae723e8-ef11-4211-9545-e727b05c1558) KITTY ♡︎
-
-![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/6a9978eb-b99e-4fa5-9bf4-edeac8a2e7fe)![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/78ee7d0d-2117-4263-8278-e873bbdc8c2c)![eff3fccd-removebg-preview](https://github.com/user-attachments/assets/d5ead628-c653-40e3-97fd-07457e5d5d9d)
 
 
 No me mires con esos ojos !! ⋆·˚ ༘ * - lyrics
