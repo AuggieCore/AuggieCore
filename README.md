@@ -18,7 +18,14 @@ FUN FACTS ! / HOBBIES
 Drawing, Collecting, making plushes, Cosplaying, Playing Indie games / live streaming.
 I Play Vrc, Pt, Sig games, Hetalia fan games, Genhsin ← not really, Indie games.
 
-![england-uk](https://github.com/user-attachments/assets/e7b98f42-1cac-4412-84f3-35f28e49b2a7)![hetalia-england (1)](https://github.com/user-attachments/assets/0c323354-f3ac-497c-b622-0b9ba283a87c)![england-france (3)](https://github.com/user-attachments/assets/c2d8c195-6821-4061-a1de-39074b2e99dc)
+![england-uk](https://github.com/user-attachments/assets/e7b98f42-1cac-4412-84f3-35f28e49b2a7)![hetalia-england (1)](https://github.com/user-attachments/assets/0c323354-f3ac-497c-b622-0b9ba283a87c)![england-france (3)](https://github.com/user-attachments/assets/c2d8c195-6821-4061-a1de-39074b2e99dc)![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/087936aa-5da2-464b-bc1b-2c39bd08b15d)
+![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/1a75ccbe-437d-40f2-9727-9ec763f9ebb1)
+![9aa47f49](https://github.com/user-attachments/assets/953e4459-5a15-468e-be9c-694acbef505d)![england-hetalia (12)](https://github.com/user-attachments/assets/207c49e0-e5ff-4f72-a745-8af9040b1312)
+
+
+
+
+
 
 
 
