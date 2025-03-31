@@ -24,7 +24,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤFANDOMS !  ㅤㅤ ![hcEOJj0](https://github.com/user-attachments/assets/502d67ca-527d-4d0c-83cb-d48e3e5dbf46) ㅤㅤㅤㅤㅤㅤㅤㅤ![c13d4c86](https://github.com/user-attachments/assets/44d08b52-e932-47ee-a32d-76fd0a43f6b8)
+ㅤㅤㅤㅤㅤㅤㅤFANDOMS !  ㅤㅤ ![hcEOJj0](https://github.com/user-attachments/assets/502d67ca-527d-4d0c-83cb-d48e3e5dbf46) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c13d4c86](https://github.com/user-attachments/assets/44d08b52-e932-47ee-a32d-76fd0a43f6b8)
 
 
 . ![gzc7WrR](https://github.com/user-attachments/assets/23fc218d-f8db-4c23-9276-7ecbb4c144f6)
