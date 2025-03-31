@@ -4,12 +4,14 @@
 ໒꒱🌱⠈⠂⠄ ‹𝟹 🚞〃 ˝
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c5bcb133](https://github.com/user-attachments/assets/90dc5836-226f-4eeb-b718-e50eb6912a88) ![ae8dad0e](https://github.com/user-attachments/assets/dd42bd28-45aa-4c8b-b471-ddb629fbca7f)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName – > Auggie ! . core  .  ˎˊ˗
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![fvxdgZ7](https://github.com/user-attachments/assets/135b2e80-de4b-4dba-8213-da781ab6a6f1)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName – > Auggie ! . core  .  ˎˊ˗
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm a 13 - 17 y/o ! ★ ˎˊ˗ㅤㅤ ![8e8ba0e7](https://github.com/user-attachments/assets/c788f2e2-1c3d-4ef9-83c7-5eb701009037)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![uRh2Ibq](https://github.com/user-attachments/assets/484f968e-babf-43fe-bda6-3c4c90067f28)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm a 13 - 17 y/o ! ★ ˎˊ˗ㅤㅤ ![8e8ba0e7](https://github.com/user-attachments/assets/c788f2e2-1c3d-4ef9-83c7-5eb701009037)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![992c98ad](https://github.com/user-attachments/assets/f6266289-5926-410f-962d-f53c2538eb38)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![992c98ad](https://github.com/user-attachments/assets/f6266289-5926-410f-962d-f53c2538eb38)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤCanadian / British ˎˊ˗
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![8cb47556 (1)](https://github.com/user-attachments/assets/cc49d764-c607-4978-8fd7-d912f9c40736) ㅤㅤㅤ![england-hetalia (12)](https://github.com/user-attachments/assets/207c49e0-e5ff-4f72-a745-8af9040b1312)
