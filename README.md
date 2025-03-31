@@ -2,12 +2,13 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c5bcb133](https://github.com/user-attachments/assets/90dc5836-226f-4eeb-b718-e50eb6912a88) ![ae8dad0e](https://github.com/user-attachments/assets/dd42bd28-45aa-4c8b-b471-ddb629fbca7f)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName – > Auggie ! . core  .  ˎˊ˗
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName – > Auggie ! . core  .  ˎˊ˗
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm a 13 - 17 y/o ! ★ ˎˊ˗ㅤㅤ ![8e8ba0e7](https://github.com/user-attachments/assets/c788f2e2-1c3d-4ef9-83c7-5eb701009037)
 
 
-![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/cddaf940-0d8b-45d0-8fa6-5646cdc6f1cf)![2024_BN_Group_Banner (1) (1)](https://github.com/user-attachments/assets/37d8b4ba-66e0-43a7-ab2b-61b2648745d9)
-
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![992c98ad](https://github.com/user-attachments/assets/f6266289-5926-410f-962d-f53c2538eb38)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤCanadian / British ˎˊ˗
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![8cb47556 (1)](https://github.com/user-attachments/assets/cc49d764-c607-4978-8fd7-d912f9c40736) ㅤㅤㅤ![england-hetalia (12)](https://github.com/user-attachments/assets/207c49e0-e5ff-4f72-a745-8af9040b1312)
 
