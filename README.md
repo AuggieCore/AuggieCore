@@ -23,9 +23,11 @@
 
 
 
-FANDOMS !
+ㅤㅤㅤㅤㅤㅤㅤFANDOMS ! ![hcEOJj0](https://github.com/user-attachments/assets/502d67ca-527d-4d0c-83cb-d48e3e5dbf46)
 
-. Hetalia / dreamtalia / hetaoni, Sig ← (deadplate coldfront elevator hitch those games)
+
+. ![gzc7WrR](https://github.com/user-attachments/assets/23fc218d-f8db-4c23-9276-7ecbb4c144f6)
+ Hetalia / dreamtalia / hetaoni, Sig ← (deadplate coldfront elevator hitch those games)
 
 
 
