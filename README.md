@@ -23,11 +23,14 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤFANDOMS ! ![hcEOJj0](https://github.com/user-attachments/assets/502d67ca-527d-4d0c-83cb-d48e3e5dbf46)
+ㅤㅤㅤㅤㅤㅤㅤFANDOMS !  ㅤㅤ ![hcEOJj0](https://github.com/user-attachments/assets/502d67ca-527d-4d0c-83cb-d48e3e5dbf46)
 
 
 . ![gzc7WrR](https://github.com/user-attachments/assets/23fc218d-f8db-4c23-9276-7ecbb4c144f6)
- Hetalia / dreamtalia / hetaoni, Sig ← (deadplate coldfront elevator hitch those games)
+ Hetalia / dreamtalia / ![rJaTpr9](https://github.com/user-attachments/assets/8abb4b53-d126-403a-bb27-c7e329846392)
+ hetaoni, Sig ← (deadplate coldfront elevator hitch those games)  ㅤ![ObBJsPH](https://github.com/user-attachments/assets/ed486fe4-4444-4c21-956c-2811f37ba163)
+
+
 
 
 
