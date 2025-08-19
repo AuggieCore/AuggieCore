@@ -10,7 +10,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀<img width="80" height="80" alt="Screenshot_2025-08-17_010605-removebg-preview (1)" src="https://github.com/user-attachments/assets/9fd415bb-2ca1-4f1b-9a36-768300fba5f5" />
  <img width="100" height="100" alt="Untitled143_20250817185836 (1)" src="https://github.com/user-attachments/assets/60498d76-cf8e-48c1-bd9d-7b514d8f40cf" /><img width="71" height="80" alt="Screenshot_2025-08-17_030522-removebg-preview (1)" src="https://github.com/user-attachments/assets/fd407fda-f553-4251-9ecf-b6a53de3b247" />
 
-
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀  ⠀ ⠀⠀ ⠀ ⠀   ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ 𐔌   .  ⋮ my oc's  .ᐟ  ֹ   ₊ ꒱ ^_^
 
 
 
