@@ -9,7 +9,8 @@
 ㅤₙₐₘₑₛ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![30ef3337](https://github.com/user-attachments/assets/8fdbf845-ba23-4a5b-9081-f11f4a751ed9)
-![ezgif-756764bab5bc7f](https://github.com/user-attachments/assets/9b269441-fbe4-4202-ac24-5d4a862c713f)![e9f2641a](https://github.com/user-attachments/assets/fcb655c8-f95f-4a28-a96f-d2cd291a1f26)
+![ezgif-756764bab5bc7f](https://github.com/user-attachments/assets/9b269441-fbe4-4202-ac24-5d4a862c713f)![e9f2641a](https://github.com/user-attachments/assets/fcb655c8-f95f-4a28-a96f-d2cd291a1f26)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![8ddc28ed](https://github.com/user-attachments/assets/9c12502f-de0a-427b-9b22-f86cb253334d)
+
 
 
 ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤ   ౿ ݁  .ㅤㅤㅤㅤㅤㅤ𝘛𝘩𝘦𝘺 / 𝘵𝘩𝘦𝘮ㅤㅤㅤㅤㅤㅤ︵   ｡ Ꮺ ˚
