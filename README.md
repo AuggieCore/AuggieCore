@@ -3,8 +3,8 @@
 🪽     . . .⠀⠀꒰ AuggieCore ! ꒱ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-            ⁺　.⠀ name , age⠀  ⌒₊˚ ❤︎ ⠀ 
-                    pro   ノ⠀nouns .⠀
+            ⁺　.⠀ Augustine , Minor⠀  ⌒₊˚ ❤︎ ⠀ 
+                    they   ノ⠀the, .⠀
        ︵  extra  info  goes  right  here  .ᐟ 
                                 subtwts
 
