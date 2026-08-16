@@ -13,4 +13,5 @@
 
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/fa9553da.png> <div></div>
   
-<img src=https://file.garden/agOhD9NWGgx4Co9S/higher-quality-version-of-that-one-roland-image-i-keep-v0-zpfjkarz8pkd1-removebg-preview.png width=40>
+<img src=https://file.garden/agOhD9NWGgx4Co9S/higher-quality-version-of-that-one-roland-image-i-keep-v0-zpfjkarz8pkd1-removebg-preview.png width=40> 𝔹𝕐𝕀⠀<sub> <sup>𓏵⠀ txt ⠀⠀ྀི
+⠀⠀⠀⠀♰⠀   𓈒  ⠀txt⠀ ﾉ⠀txt   ✙ <sub>
