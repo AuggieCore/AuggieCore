@@ -41,4 +41,7 @@
 
 <img src=https://file.garden/agOhD9NWGgx4Co9S/419c72c5.gif width=30> 𝔽𝔸ℕ𝔻𝕆𝕄𝕊/ 𝕃𝕀𝕂𝔼𝕊.⠀ ⠀𝙻𝚒𝚋𝚛𝚊𝚛𝚢 𝚘𝚏 𝚁𝚞𝚒𝚗𝚊, 𝚕𝚘𝚋𝚘𝚝𝚘𝚖𝚢 𝚌𝚘𝚛𝚙𝚘𝚛𝚊𝚝𝚒𝚘𝚗, 𝙻𝚒𝚖𝚋𝚞𝚜 𝙲𝚘𝚖𝚙𝚊𝚗𝚢, 𝙷𝚎𝚝𝚊𝚕𝚒𝚊, 𝚂𝙰𝚃𝚆, 𝙲𝚘𝚞𝚗𝚝𝚛𝚢 𝚋𝚊𝚕𝚕𝚜/𝚑𝚞𝚖𝚊𝚗𝚜, 𝙶𝚞𝚝𝚜 𝚊𝚗𝚍 𝙱𝚕𝚊𝚌𝚔𝚙𝚘𝚠𝚍𝚎𝚛, 𝚉𝚎𝚕𝚍𝚊, 𝙷𝚒𝚜𝚝𝚘𝚛𝚢/𝙶𝚎𝚘, 𝚂𝚘𝚞𝚝𝚑 𝙿𝚊𝚛𝚔, 𝙸 𝚁𝙴𝙰𝙻𝙻𝚈 𝙻𝙸𝙺𝙴 𝙵𝙻𝙰𝙶𝚂, 𝙲𝚘𝚕𝚍 𝙵𝚛𝚘𝚗𝚝, 𝙴𝚕𝚎𝚟𝚊𝚝𝚘𝚛 𝚑𝚒𝚝𝚌𝚑, 𝙳𝚎𝚊𝚍 𝚙𝚕𝚊𝚝𝚎, 𝙹𝚊𝚌𝚔𝚙𝚘𝚝 𝚌𝚛𝚞𝚜𝚑 𝚌𝚘𝚞𝚛𝚜𝚎, 𝚂𝚒𝚐, 𝚅𝚘𝚌𝚊𝚕𝚘𝚒𝚍, 𝙳𝚘𝚗'𝚝 𝚎𝚊𝚝 𝚝𝚑𝚎 𝚌𝚊𝚜𝚑𝚒𝚎𝚛, 𝚂𝚊𝚒𝚔𝚒-𝙺 ! <img src=https://file.garden/agOhD9NWGgx4Co9S/xMwNhKI.gif width=18>
 
-<img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_inline_mxtkrgVC2J1rrry1n540.gif> <img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_inline_mxtkqohRZ91rrry1n540.gif>
+<div></div>
+
+
+<img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_inline_n26vj7WbQD1rrry1n540.gif>
