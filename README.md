@@ -35,6 +35,8 @@
        ⠀
  ⠀ ⠀<div></div>
  ⠀ ⠀
-<img src=https://file.garden/agOhD9NWGgx4Co9S/RolandCombatEvade.png width=250> <div> </div><sub> <sup>    ۶ৎ " my sorrow, you are better than a well-beloved. " ! ֶ   ೀ　 <sub>
+<img src=https://file.garden/agOhD9NWGgx4Co9S/RolandCombatEvade.png width=250> <div> </div> <sub><sup>۶ৎ " my sorrow, you are better than a well-beloved. " ! ֶ   ೀ</sup></sub>
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400><img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400> 
 <div align="center"> 
+
+<img src=https://file.garden/agOhD9NWGgx4Co9S/419c72c5.gif width=30> 𝔽𝔸ℕ𝔻𝕆𝕄𝕊.⠀ ⠀
