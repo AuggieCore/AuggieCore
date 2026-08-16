@@ -6,5 +6,7 @@
 
   <br>
     <div align="center">   ⠀<img src="https://visitor-badge.laobi.icu/badge?page_id=aphArhur.aphArthur&left_color=gray&right_color=black&left_text=GUESTS!&style=flat_square"/> ⠀⠀
-</p>
-<br>
+
+
+      
+<img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_3fc8f1b25c277b0c064ef85bbe608c6b_609c92b5_250.png width=50> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/ALMPpt1.gif width=15> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_6e0decdf8d81b355cc42106624e38dc3_65fe24ef_250.png width=50>
