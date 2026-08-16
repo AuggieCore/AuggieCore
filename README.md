@@ -12,6 +12,7 @@
 <img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_3fc8f1b25c277b0c064ef85bbe608c6b_609c92b5_250.png width=50> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/ALMPpt1.gif width=15> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_6e0decdf8d81b355cc42106624e38dc3_65fe24ef_250.png width=50>
 
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/fa9553da.png> <div></div>
+
+<sub> <sup>𓏵⠀ (롤랑 ⠀⠀ྀི  ⠀Roland ⠀ ♰⠀   𓈒  ⠀That's that, and this is this   ✙ <sub>
   
-<img src=https://file.garden/agOhD9NWGgx4Co9S/higher-quality-version-of-that-one-roland-image-i-keep-v0-zpfjkarz8pkd1-removebg-preview.png width=40> 𝔹𝕐𝕀⠀<sub> <sup>𓏵⠀ txt ⠀⠀ྀི
-⠀⠀⠀⠀♰⠀   𓈒  ⠀txt⠀ ﾉ⠀txt   ✙ <sub>
+<img src=https://file.garden/agOhD9NWGgx4Co9S/higher-quality-version-of-that-one-roland-image-i-keep-v0-zpfjkarz8pkd1-removebg-preview.png width=40> 𝔹𝕐𝕀⠀
