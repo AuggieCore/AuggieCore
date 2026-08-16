@@ -31,4 +31,8 @@
      <div> 🌙 : Offtab . DNIUCF . Menu (Don't use it that much)
      <br>
      ⛔️ : Online . Int . (Mainly use)
-   
+      <br>
+       ⠀
+ ⠀ ⠀<div></div>
+ ⠀ ⠀
+<img src=https://file.garden/agOhD9NWGgx4Co9S/RolandCombatEvade.png width=250> <div> </div><sub> <sup>    ۶ৎ " my sorrow, you are better than a well-beloved. " ! ֶ   ೀ　 <sub>
