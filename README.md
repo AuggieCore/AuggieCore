@@ -68,3 +68,10 @@
 
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400><img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400> 
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_a324750d3db7be674411744f905f8674_12647d75_100.webp> 
+  <div>
+( ˃` ⩌ ´˂ )
+<div></div>
+⠀
+⠀<div></div>
+⠀
+<img src=https://file.garden/agOhD9NWGgx4Co9S/3dgifmaker41170.gif width=200>
