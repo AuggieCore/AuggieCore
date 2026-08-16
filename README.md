@@ -20,3 +20,8 @@
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/fa9553da.png> <div></div>
       
 <img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled318_20260816085416.png width=53> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/ALMPpt1.gif width=15> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled318_20260816085503.png width=53>
+
+
+<img src=https://file.garden/agOhD9NWGgx4Co9S/Yi_Sang_ID_Card_2.png width=400>
+<div></div>
+<img src=https://file.garden/agOhD9NWGgx4Co9S/sM23Kvz.gif width=30> 𝔻ℕ𝕀.⠀ ⠀𝚃𝚑𝚒𝚜 𝚒𝚜 𝚐𝚘𝚒𝚗𝚐 𝚝𝚘 𝚋𝚎 𝚟𝚎𝚛𝚢 𝚋𝚊𝚜𝚒𝚌. 𝙰𝚗𝚢𝚘𝚗𝚎 𝚠𝚑𝚘 𝚒𝚜 𝚛𝚊𝚌𝚒𝚜𝚝, 𝚑𝚘𝚖𝚘𝚙𝚑𝚘𝚋𝚒𝚌, 𝚝𝚛𝚊𝚗𝚜𝚙𝚑𝚘𝚋𝚒𝚌, 𝚊 𝚜𝚞𝚙𝚙𝚘𝚛𝚝𝚎𝚛 𝚘𝚏 𝚒𝚗𝚌𝚎𝚜𝚝, 𝟷𝟾+, 𝚘𝚛 𝚊 𝚙𝚊𝚎𝚍𝚘𝚙𝚑𝚒𝚕𝚎. 𝙸𝚏 𝚢𝚘𝚞'𝚛𝚎 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚊𝚝𝚒𝚌 𝚒𝚗 𝚊𝚗𝚢 𝚠𝚊𝚢, 𝙸'𝚖 𝚗𝚘𝚝 𝚍𝚎𝚏𝚎𝚗𝚍𝚒𝚗𝚐 𝚢𝚘𝚞. 𝙳𝚘𝚗'𝚝 𝚝𝚊𝚕𝚔 𝚜𝚑𝚒𝚝 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎 𝚘𝚛 𝚊𝚗𝚢 𝚘𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜. 𝙸 𝚋𝚕𝚘𝚌𝚔 𝚏𝚛𝚎𝚎𝚕𝚢! 𝙸𝚏 𝙸 𝚏𝚒𝚗𝚍 𝚢𝚘𝚞 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐 𝚒𝚗 𝚊𝚗𝚢𝚠𝚊𝚢 𝙸 𝚠𝚒𝚕𝚕 𝚊𝚜𝚔 𝚢𝚘𝚞 𝚝𝚘 𝚜𝚝𝚘𝚙. ⠀ ⠀؛  ℝ𝔼𝔸𝔻 𝕌ℙ ♡ ꒰ 🪽 ꒱ <img src=https://file.garden/agOhD9NWGgx4Co9S/zmlhcn2.gif>
