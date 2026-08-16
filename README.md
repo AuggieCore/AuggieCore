@@ -15,4 +15,6 @@
 
 <sub> <sup>𓏵⠀ (롤랑 ⠀⠀ྀི  ⠀Roland ⠀ ♰⠀   𓈒  ⠀That's that, and this is this   ✙ <sub>
   
-<img src=https://file.garden/agOhD9NWGgx4Co9S/higher-quality-version-of-that-one-roland-image-i-keep-v0-zpfjkarz8pkd1-removebg-preview.png width=40> 𝔹𝕐𝕀⠀
+<img src=https://file.garden/agOhD9NWGgx4Co9S/Oekhx3h.gif width=30> 𝔹𝕐𝕀.         ɪ'ᴍ ᴀ ᴍɪɴᴏʀ, ᴄᴜʀʀᴇɴᴛʟʏ ɪɴ ʜɪɢʜ ꜱᴄʜᴏᴏʟ. ɪ ᴀᴍ ᴀʟꜱᴏ ᴄᴀɴᴀᴅɪᴀɴ ꜰʀᴏᴍ ᴛʜᴇ ᴇᴀꜱᴛ ᴄᴏᴀꜱᴛ, ɴᴏᴠᴀ ꜱᴄᴏᴛɪᴀ! ɪ ɴᴏ ʟᴏɴɢᴇʀ ʟɪᴠᴇ ᴛʜᴇʀᴇ, ᴛʜᴏᴜɢʜ ɪ ᴠɪꜱᴛ ᴍᴏꜱᴛʟʏ ᴇᴠᴇʀʏ ꜱᴜᴍᴍᴇʀ. ᴍʏ ʙɪʀᴛʜᴅᴀʏ ɪꜱ ɴᴏᴠᴇᴍʙᴇʀ 28. ɪ ᴜꜱᴇ ᴛʜᴇʏ/ᴛʜᴇᴍ ᴘʀᴏɴᴏᴜɴꜱ, ᴘʟᴇᴀꜱᴇ ʀᴇꜱᴘᴇᴄᴛ ᴛʜᴀᴛ, ɪꜰ ʏᴏᴜ ᴅᴏɴ'ᴛ ꜰᴇᴇʟ ᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴜꜱɪɴɢ ᴛʜᴇᴍ ᴜꜱᴇ ʜᴇ/ʜɪᴍ. ɪ ʜᴀᴠᴇ ᴀᴜᴛɪꜱᴍ, ᴅʏꜱʟᴇxɪᴀ, ᴀɴᴅ ᴀᴅʜᴅ: ɪ'ᴍ ɴᴏᴛ ꜱᴇʟꜰ ᴅɪᴀɢɴᴏꜱᴇᴅ ɪ ᴡᴀꜱ ᴛᴇꜱᴛᴇᴅ ᴛʜʀᴇᴇ ʏᴇᴀʀꜱ ᴀɢᴏ.
+
+        
