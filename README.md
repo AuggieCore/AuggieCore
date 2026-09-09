@@ -1,4 +1,4 @@
-<div align="center">https://asiyah-layer.straw.page Hod update coming soon! <img src=https://file.garden/agOhD9NWGgx4Co9S/Lobotomy_Corporation_Sephira_012.png width=30>
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀[Super Epic LobCorp StrawPage](https://asiyah-layer.straw.page) Hod update coming soon! <img src=https://file.garden/agOhD9NWGgx4Co9S/Lobotomy_Corporation_Sephira_012.png width=30>
 
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400><img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400> 
 <div align="center"> <img width="99" height="56" alt="tumblr_55cb302fbc0edda1aa3492167cb7257e_bbab014f_100 (1)" src="https://github.com/user-attachments/assets/f7830224-0674-49a4-90cc-1d6eb9491dfe" />
@@ -75,5 +75,6 @@
 <div align="center"> ㅤArt Corner !
 ⠀<div></div>
 ⠀
-<img src=https://file.garden/agOhD9NWGgx4Co9S/dondishsoap.png width=180> <img src=https://file.garden/agOhD9NWGgx4Co9S/IMG_6203.png width=200> <div></div> <img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled1681_20260628162748.png width=200> <div></div> <img src=https://file.garden/agOhD9NWGgx4Co9S/fa9553da.png> <div></div> <img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled1664_20260331193431%20(1).png width=100> <img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled1664_20260331193435%20(1).png width=100> 
-<div></div> <img src=https://file.garden/agOhD9NWGgx4Co9S/D13NasZ.gif>
+<div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/IMG_5099-removebg-preview.png width=250>
+
+ [Click me for art!](https://augart.straw.page)
